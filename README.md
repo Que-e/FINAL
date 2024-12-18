@@ -1,6 +1,6 @@
 Good day, sir!
-Here' the link po of portfolio
- 
+Here' the link po of mmy portfolio
+
 Link: https://que-e.github.io/dimacali/
 
 
