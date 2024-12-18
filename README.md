@@ -1,5 +1,5 @@
 Good day, sir!
-Here' the link po of mmy portfolio
+Here's the link po of my portfolio
 
 Link: https://que-e.github.io/dimacali/
 
